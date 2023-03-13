@@ -1,1 +1,1 @@
-# rsschool-cv
+https://sikoracore.github.io/rsschool-cv/
